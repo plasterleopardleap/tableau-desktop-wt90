@@ -1,4 +1,4 @@
-# 
+# custom Hyper-V para PC scripts é o melhor Hyper-V para PC scripts com compartilhamento de area de transferencia e otimizacao de desempenho. Seguro, confiável e otimizado para
 
 
 
